@@ -1,8 +1,1 @@
-PROJECT-D is maga project 
-With out encryption enjoy 
-@CHINAPUBGMOBILEHACKS
-you need our script to play full brutual
-messagee in telegram 
-https://t.me/ANONYMOUS300
-👆👆👆👆👆👆👆👆👆👆👆
-THANKS FOR SUPPORT # PROJECT-D
+I have deleted my project D because of few reasons. I will back soon .
